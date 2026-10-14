@@ -75,7 +75,7 @@ Currently focused on the intersection of AI, cybersecurity, governance transform
 
 ## 📧 Let's Connect
 - **LinkedIn:** [Dawn Butler](www.linkedin/in/dawnbutler1)
-- **Podcast:** [Bytes, Bits & Brilliance - Career Insights & Inspiration] (https://www.buzzsprout.com/2326005)
+- **Podcast:** [Bytes, Bits & Brilliance - Career Insights & Inspiration] (www.buzzsprout.com/2326005)
 ---
 
 ## 🚀 Current Focus
